@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with ultimate Shotcut for PC | Shotcut for Windows Panel | motion-tracking + timeline-editing, the #1 panel. Includes motion-tracking
 
 
 
